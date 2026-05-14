@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket exclusive bot: stop-loss-management & portfolio-optimization, the #1 bot. Includes stop-loss-management and portfolio-optimization
 
 
 
